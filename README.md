@@ -13,7 +13,7 @@
 
 - A passionate Self-taught QA tester Manual
 - With Experience as a Database Administrator and SQL
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://drive.google.com/file/d/1Ou4Emngr3yMMG26_BGgujdc8xyQeY1pM/view?usp=sharing)
+- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://drive.google.com/file/d/1c64STUY2UqXFTHFwN-ybRq4uD9KgdMYx/view?usp=sharing)
 
 <br><br>
 
